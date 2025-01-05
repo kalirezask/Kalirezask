@@ -1,1 +1,1 @@
-https://470fe318-grandfather.kalirezask8139.workers.dev/sub/6958999c-2486-4520-8efd-3652b6c2a94b#BPB-Normal
+warp://188.114.99.25:1074/?ifp=1-3&ifpm=m4#𓄂𓆃ʷᵃʳᵖ&&detour=warp://188.114.96.46:987/?ifp=2-4&ifpm=m6#🆆🅾🆆🗽
